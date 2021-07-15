@@ -1,2 +1,2 @@
-# kariakoo market
- It is the busiest and the biggest market that contributes substantially to Dar es Salaam's food provision as well as a small-scale economy. Until recently Kariakoo was also one of the main dala dala "stations" in Dar es Salaam, although this has now been moved to south east of Mawasiliano as the Mawasiliano bus terminal.
+# Soko la kariakoo
+ Ndilo soko lenye shughuli nyingi na kubwa zaidi ambalo linachangia kwa kiasi kikubwa utoaji wa chakula Dar es Salaam pamoja na uchumi mdogo. Hadi hivi karibuni Kariakoo pia ilikuwa moja ya vituo kuu vya dala dala jijini Dar es Salaam, ingawa hii sasa imehamishiwa kusini mashariki mwa Mawasiliano kama kituo cha basi cha Mawasiliano.
